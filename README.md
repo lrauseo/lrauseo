@@ -30,8 +30,7 @@
 
 ## 📫 Como me encontrar
 - GitHub: [@lrauseo](https://github.com/lrauseo)  
-- LinkedIn: [Seu LinkedIn aqui]  
-- Email: [Seu email aqui]  
+- LinkedIn: [https://www.linkedin.com/in/leandro-rauseo-5875a513/]  
 
 ---
 
